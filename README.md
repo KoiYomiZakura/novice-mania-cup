@@ -1,0 +1,1 @@
+# novice-mania-cup
